@@ -1,0 +1,8 @@
+- 👋Olá,eu sou a vic
+- Tenho 15 anos
+- Estou no 1 ano do Ensino Medio
+- Eu sou extremamente apaixonada em cavalos
+- Amo minha familia mais que tudo
+- Todo final de semana saio andar de cavlo
+- Sou participante da modalidade laço comprido
+- Vou em quase todos os torneios que tem
